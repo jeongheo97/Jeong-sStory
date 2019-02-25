@@ -5,4 +5,7 @@ sadwiches with pizza. In art class, Tom spilled the milk all over my new paintin
 forever, I just wanted to hop through it. I asked for a pass to go to the computer lab, and I saw Jacob and Jessica talking in
 the hall. My last class was computer, and we played with three new ipads. After school, I felt tired as I rode the bus home.
 
-
+On the bus I was so tired that I fell alseep and I missed my stop!
+Since I missed my stop I had to walk home from the end of the bus route. 
+It was a long walk, but eventually I made it home.
+My mother was worried sick because I was so late, but I explained what happened and then we ate dinner.
